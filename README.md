@@ -12,9 +12,6 @@
  ㅤㅤㅤ                 [Ი𐑼](https://br.pinterest.com/pin/1110559589391521577/)
  
 <img width="250" alt="Image" src="https://github.com/user-attachments/assets/8514667d-c0e1-428c-abdd-14ba7863d27f" align=left/>
- 
+
 ####          [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mansalva&size=29&duration=3000&pause=1000&color=a65c5b&repeat=true&random=false&width=435&lines=Come+flying+to+me;%EA%B7%B8%EB%A6%AC%EC%9B%8C%2C+%EB%84%88%EC%9D%98+%EB%AA%A9%EC%86%8C%EB%A6%AC;%EB%82%A0+%EC%9D%BC%EC%9C%BC%ED%82%A4%EB%8D%98+%EB%82%A0%EA%B0%AF%EC%A7%93;Come%2C+come%2C+come+flying+to+me)](https://git.io/typing-svg)
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31i5trea3s2rval7ccj52btvwzii&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=0d1117&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31i5trea3s2rval7ccj52btvwzii&redirect=true)
-</p>
-

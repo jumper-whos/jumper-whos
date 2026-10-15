@@ -13,4 +13,4 @@
 
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31i5trea3s2rval7ccj52btvwzii&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=0d1117&bar_color_cover=true)
 
-<img width="210" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" /><img width="210" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" />
+<img width="200" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" /><img width="200" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" />

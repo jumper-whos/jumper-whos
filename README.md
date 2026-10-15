@@ -3,7 +3,7 @@
 <img width="356" alt="Image" src="https://github.com/user-attachments/assets/5fc49d44-ecb6-4e99-8a2a-2b417de1154a" align=left/>      ㅤㅤㅤ  ㅤㅤㅤㅤㅤ ㅤㅤ   ㅤㅤ ㅤㅤ ![](https://komarev.com/ghpvc/?username=ivorycellos&base=1000&label=bings!&style=plastic&color=a65c5b)   ㅤ  ㅤㅤ ㅤㅤㅤㅤ[₍ᐢ. ̫ .ᐢ₎](https://br.pinterest.com/pin/1110559589391521577/)
 <img width="420" alt="Image" src="https://github.com/user-attachments/assets/0f669ec7-2bff-40fc-9aa1-05c62b15a4d9" align=right />
 
-#### ㅤㅤ ㅤㅤㅤ  ㅤ[ata](clownzyer.atabook.org) ㅤㅤㅤ ㅤㅤ[carrd](https://clownzyer.carrd.co/) ㅤㅤ
+#### ㅤㅤ ㅤㅤㅤ  ㅤ[ata](https://clownzyer.atabook.org/) ㅤㅤㅤ ㅤㅤ[carrd](https://clownzyer.carrd.co/) ㅤㅤ
 ‎‎‎‎‎
                ㅤㅤ [Ი𐑼](https://br.pinterest.com/pin/1110559589391521577/)
 <img width="250" src="https://github.com/user-attachments/assets/8514667d-c0e1-428c-abdd-14ba7863d27f"/> ㅤㅤ ㅤㅤ

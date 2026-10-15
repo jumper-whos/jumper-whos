@@ -1,7 +1,6 @@
 <img width="220" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" /><img width="220" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" /><img width="220" alt="Image" src="https://github.com/user-attachments/assets/c01b1495-bc0d-45cd-8589-af6d4f18c374" />
-
   <img width="390" alt="Image" src="https://github.com/user-attachments/assets/5fc49d44-ecb6-4e99-8a2a-2b417de1154a" align=left/>     ㅤ ㅤㅤㅤ ㅤㅤ   ㅤㅤ ㅤㅤ ![](https://komarev.com/ghpvc/?username=ivorycellos&base=1000&label=bings!&style=plastic&color=a65c5b)   ㅤ  ㅤㅤ ㅤㅤㅤㅤ[₍ᐢ. ̫ .ᐢ₎](https://br.pinterest.com/pin/1110559589391521577/)
-<img width="430" alt="Image" src="https://github.com/user-attachments/assets/0f669ec7-2bff-40fc-9aa1-05c62b15a4d9" align=right />
+<img width="420" alt="Image" src="https://github.com/user-attachments/assets/0f669ec7-2bff-40fc-9aa1-05c62b15a4d9" align=right />
 
 
 
